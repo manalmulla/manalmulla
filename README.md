@@ -4,7 +4,7 @@ I'm Manal Mulla, a Computer Engineering Student. Welcome to my GitHub profile!
 
 📫 How to reach me:
 - [LinkedIn](https://www.linkedin.com/in/manal-mulla-380622301/)
-- [Email](manalmulla05@gmail.com)
+- [Email](https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox)
 
 ### 😄 Pronouns:
 - [Your pronouns, if you wish to share]
